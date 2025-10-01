@@ -18,4 +18,4 @@ A LIGHTWEIGHT, FULLY RESPONSIVE, ANTI-BYPASS MINI SHELL. BUILT FOR FAST, STEALTH
 © Copyright By @Fiiizzxvvvvvvzzzz THANKS ALL !!!
 
 
-My Telegram : KLIK DISINI!!!(https://t.me/Fiiizzxvvvvvvzzzz)
+My Telegram : http://t.me/Fiiizzxvvvvvvzzzz
